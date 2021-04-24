@@ -4,8 +4,6 @@
 
 ### Best wishes 💡
 
----
-
 - 🏸 Looking forward to playing badminton next time.
 - See the sea.
 
