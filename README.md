@@ -21,11 +21,11 @@
 </br>
 
 --- 
-### Best wishes 💡
+### Interests 💡
 
-- 🏸 Looking forward to playing badminton next time.
-- See the sea.
-
+- 🏸 badminton.
+- 🏀 basketball
+- yoga
 ---
 
 <details> 
